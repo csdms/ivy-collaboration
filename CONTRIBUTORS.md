@@ -2,5 +2,6 @@
 
 The following people have contributed to this project.
 
-* Mark Piper (I like to ride my bike)
-* Nick Colaianne (Fluvial Incision?!)
+* Zainab Tariq (I like to go out for hiking)
+* 
+
